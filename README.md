@@ -1,2 +1,3 @@
-# codeandoscar.github.io
-Zesde Ling
+# C&O Stories Official
+Zesde Ling:
+Crimeromartens
